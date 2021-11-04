@@ -3,3 +3,12 @@ I have attached my latest two pieces of art, The Divine Joys of Poking a Bear, a
 In relation to this art piece is also the announcement of the future minting of an NFT, titled The Logistical, which I estimated to be over $100 Trillion. Yes, $100 Trillion.  This is not a joke, and I would be extremely grateful to any person who takes the time to read, or listen, to the words that I have written. If you agree with the sentiment and claims that I have made, I would also greatly appreciate any person who decides to take actions on spreading the word of this project. In return, you have my word, as an artist with integrity, that I will make no money off of it. 
 
 All profits from this NFT will go to non-profits fighting world hunger and homelessness.
+
+The PDF file containing the written is located is this github. 
+
+
+You may listen to it's audio version on youtube or soundcloud. These are their links:
+
+https://youtu.be/zDQiZVLSFJU
+
+https://soundcloud.com/matador33/the-divine-joys-of-poking-a-bear?si=d5629d124e2d4fd2984e916a8bfe6c1b
