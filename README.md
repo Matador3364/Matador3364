@@ -4,8 +4,9 @@ In relation to this art piece is also the announcement of the future minting of 
 
 All profits from this NFT will go to non-profits fighting world hunger and homelessness.
 
-The PDF file containing the written is located is this github. 
+The PDF file containing the written is located by following the link to this github: 
 
+https://github.com/Matador3364/Matador3364/blob/main/The%20Divine%20Joys%20of%20Poking%20a%20Bear%20(1).pdf
 
 You may listen to it's audio version on youtube or soundcloud. These are their links:
 
